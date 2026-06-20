@@ -1,4 +1,3 @@
-${\textsf{\color{#3d3d73}jeverus pilled}}$
 ![](https://files.catbox.moe/nnswh3.png)
 
 ${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
