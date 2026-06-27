@@ -6,5 +6,4 @@ ${\textsf{\color{#3d3d73}⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N +}}$ ${\textsf{\
 
 ${\textsf{\color{#ffdead}༄ C+H and Int is appreciated please!!!}}$ ${\textsf{\color{#3d3d73}I also accept all friend requests too}}$ 
 
-[ponytown info](https://rentry.co/forponytownzz) <- THIS IS VERY OUTDATED 
-
+[ponytown info](https://rentry.co/forponytownzz) 
