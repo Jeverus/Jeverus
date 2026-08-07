@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/nnswh3.png)
 
-@pt-hall-of-media
+[@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
 ${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
 
