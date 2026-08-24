@@ -1,11 +1,7 @@
-![](https://files.catbox.moe/nnswh3.png)
 
-[@pt-hall-of-media](https://github.com/pt-hall-of-media)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) (pt severus snape)
 
-${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
-
-${\textsf{\color{#3d3d73}⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N +}}$ ${\textsf{\color{#ffdead}THERIAN}}$ and also Plural.
-
-${\textsf{\color{#ffdead}༄ C+H and Int is appreciated please!!!}}$ ${\textsf{\color{#3d3d73}I also accept all friend requests too}}$ 
+![](https://file.garden/aiRQbQoBARDpXD-M/Untitled1412_20260824155759.png)
+![](https://file.garden/aiRQbQoBARDpXD-M/jsev19.webp)
 
 [ponytown info](https://rentry.co/forponytownzz) 
