@@ -9,4 +9,6 @@
 ![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
 lazy to make this look pretty.
 
+don't copy my skins or I will find you, I work hard on them.
+
 [ponytown info](https://rentry.co/forponytownzz) 
