@@ -7,7 +7,7 @@
 ![](https://file.garden/aiRQbQoBARDpXD-M/jsev19.webp)
 
 ![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
-lazy to make this look pretty.
+i love love to cuddle + hide with others and I love when people do it with me! it makes me feel happy... whisper to interact cuz I dont check public a lot since offtab.
 
 don't copy my skins or I will find you, I work hard on them.
 
