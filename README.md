@@ -7,8 +7,10 @@
 ![](https://file.garden/aiRQbQoBARDpXD-M/jsev19.webp)
 
 ![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
-i love love to cuddle + hide with others and I love when people do it with me! it makes me feel happy... whisper to interact cuz I dont check public a lot since offtab.
+i love love to cuddle + hide with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I dont check public a lot since offtab.
 
-don't copy my skins or I will find you, I work hard on them.
+I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
+
+don't copy my skins or I will find you, I worked hard on them..
 
 [ponytown info](https://rentry.co/forponytownzz) 
