@@ -11,6 +11,8 @@ i love love to cuddle + hide with others and I love when people do it with me! i
 
 I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
 
+I accept friend request and don't care if you send me one!!
+
 don't copy my skins or I will find you, I worked hard on them..
 
 [ponytown info](https://rentry.co/forponytownzz) 
