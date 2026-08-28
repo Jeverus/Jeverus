@@ -15,6 +15,6 @@ I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the
 
 I accept friend request and don't care if you send me one!!
 
-don't copy my skins or I will find you, I worked hard on them..
+don't copy my skins or I will find you, I worked hard on them.. even if you blocked me after copying my skins. I'll still find you
 
 [ponytown info](https://rentry.co/forponytownzz) 
