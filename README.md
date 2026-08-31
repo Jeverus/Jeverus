@@ -7,7 +7,7 @@
 ![](https://file.garden/aiRQbQoBARDpXD-M/jsev19.webp)
 
 ![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
-i love love to cuddle + hide with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I dont check public a lot since offtab.. so pls c+h with me. im pretty lonely most of the time so I really appreciate when people come up to me!
+i love love to cuddle + hide with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I dont check public a lot since offtab.. so pls c+h with me. im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too❤️
 
 don't cover me unless we're oomfs or you're cuddling with me.
 
