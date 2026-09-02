@@ -11,11 +11,13 @@ i love love to cuddle + hide with others and I love when people do it with me! i
 
 don't cover me unless we're oomfs or you're cuddling with me.
 
-I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolatd a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
+I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolated a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
 
 I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
 
 I accept friend request and don't care if you send me!!!
+
+im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #starwarsday
 
 ![](https://files.catbox.moe/dsz6in.png)
 [ponytown info](https://rentry.co/forponytownzz) 
