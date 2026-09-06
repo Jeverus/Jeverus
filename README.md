@@ -6,6 +6,8 @@
 <a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  slasher heavykin 
 </p>
 <a href="https://github.com/kaotown"> @kaotown </a>: slasher's biggest fan! 
+</p>
+<a href="https://github.com/Ponytowns-rewards"> @Ponytowns-rewards </a>: ponytowns slasher!
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
