@@ -8,13 +8,11 @@
 <a href="https://github.com/kaotown"> @kaotown </a>: slasher's biggest fan! 
 </div>
 
-![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
+![](https://files.catbox.moe/tu9444.jpg)
 
-![](https://file.garden/aiRQbQoBARDpXD-M/dkkq754-3d9355bf-a1ad-4211-9ee9-79b9f8bfc18b.gif)
-![](https://file.garden/aiRQbQoBARDpXD-M/Untitled1412_20260824155759.png)
-![](https://file.garden/aiRQbQoBARDpXD-M/jsev19.webp)
+![](https://files.catbox.moe/1t9qpd.png)
 
-![](https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_148176437205400.jpg)
+![](https://files.catbox.moe/tu9444.jpg)
 
 hi it me chansher , pronounced chance sir
 
