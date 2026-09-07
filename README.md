@@ -24,6 +24,7 @@ don't cover me unless we're oomfs or you're cuddling with me.
 
 I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolated a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
 ![](https://file.garden/aiRQbQoBARDpXD-M/bb1fcfa45a0b487a0a533bf553c4a0d0.jpg)
+
 I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
 
 I accept friend request and don't care if you send me!!!
