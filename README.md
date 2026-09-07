@@ -16,9 +16,9 @@
 
 ![](https://files.catbox.moe/tu9444.jpg)
 
-hi it me chansher , pronounced chance sir
+hi it me chansher , pronounced chance sir.. ok or call me slasher...
 
-i love love to cuddle + hide with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
+i love to c+h with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
 don't cover me unless we're oomfs or you're cuddling with me.
 
@@ -31,4 +31,5 @@ I accept friend request and don't care if you send me!!!
 im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #starwarsday
 
 ![](https://files.catbox.moe/788zcx.webp)
+me in real life :D
 [ponytown info](https://rentry.co/forponytownzz) 
