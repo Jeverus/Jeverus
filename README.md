@@ -8,6 +8,8 @@
 <a href="https://github.com/kaotown"> @kaotown </a>: slasher's biggest fan! 
 </p>
 <a href="https://github.com/Ponytowns-rewards"> @Ponytowns-rewards </a>: ponytowns slasher!
+  </p>
+<a href="https://github.com/pt-icon"> @pt-icon </a>: ponytowns iconic slasher
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
