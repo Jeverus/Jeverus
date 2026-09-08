@@ -34,7 +34,7 @@ I accept friend request and don't care if you send me!!!
 
 im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #starwarsday
 
-![](https://files.catbox.moe/788zcx.webp)
-me in real life :D
+![](https://file.garden/aiRQbQoBARDpXD-M/image-3.png)
+my roblox avatar
 
 [ponytown info](https://rentry.co/forponytownzz) 
