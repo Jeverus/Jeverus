@@ -12,7 +12,9 @@
 
 ![](https://files.catbox.moe/tu9444.jpg)
 
-![](https://files.catbox.moe/1t9qpd.png)
+<p align="center">
+  <img src="https://files.catbox.moe/1t9qpd.png" alt="slasher me" width="600">
+</p>
 
 ![](https://files.catbox.moe/tu9444.jpg)
 
