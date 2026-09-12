@@ -10,6 +10,12 @@
 <a href="https://github.com/Ponytowns-rewards"> @Ponytowns-rewards </a>: ponytowns slasher!
   </p>
 <a href="https://github.com/pt-icon"> @pt-icon </a>: ponytowns iconic slasher
+    </p>
+<a href="https://github.com/PT-FANtastic-Hall"> @PT-FANtastic-Hall
+ </a>: ponytowns slasher
+</p>
+  <a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations
+ </a>: ponytowns slasher and slasher1337
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
