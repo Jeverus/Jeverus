@@ -1,6 +1,6 @@
 </p>
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🗡</g-emoji> my titles. </summary>
+  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> my titles. </summary>
 <a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media </a>:　ponytowns severus snape! 
 </p>
 <a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  slasher heavykin 
@@ -13,12 +13,15 @@
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
-i am da real slasher ..
 <p align="center">
   <img src="https://files.catbox.moe/ub8vwf.png" alt="slasher me" width="600">
 </p>
 
 ![](https://files.catbox.moe/tu9444.jpg)
+
+<p align="center">
+I am da real slasher V_V
+</p>
 
 hi it me davi/davie or wtv , or call me slasher... slash for short
 
