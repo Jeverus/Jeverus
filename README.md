@@ -20,7 +20,7 @@
 
 ![](https://files.catbox.moe/tu9444.jpg)
 <p align="center">
-  <img src="https://files.catbox.moe/ub8vwf.png" alt="slasher me" width="600">
+  <img src="https://file.garden/aiRQbQoBARDpXD-M/Untitled1429_20260912114739.png" alt="slasher me" width="600">
 </p>
 
 ![](https://files.catbox.moe/tu9444.jpg)
@@ -50,3 +50,8 @@ im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #st
 </p>
 
 [ponytown info](https://rentry.co/forponytownzz) 
+</div>
+<p align="center">
+  <img src="https://files.catbox.moe/ub8vwf.png" alt="slasher me" width="600">
+</p>
+
