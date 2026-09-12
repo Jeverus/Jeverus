@@ -30,7 +30,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=My-Bacons&abbreviated=true)
+  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=Bacons&abbreviated=true)
 
 
 <p align="center">
