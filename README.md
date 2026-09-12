@@ -28,8 +28,13 @@
 
 ![](https://files.catbox.moe/tu9444.jpg)
 
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=My-Bacons&abbreviated=true)
+
+
 <p align="center">
-I am da real slasher V_V
+I am the real slasher V_V
 </p> 
 
 
