@@ -20,7 +20,7 @@
 <a href="https://github.com/choco-town"> @choco-town
  </a>: ponytowns slasher!!
   </p>
-<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>:  slasher 
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: pts slasher and #1 Slasher1337 fan/shipper!!
 </p>
 </div>
 
