@@ -47,6 +47,8 @@ I am the real slasher V_V
 
   don't cover me unless we're oomfs or you're cuddling with me.
 
+I DISCONNECT A LOT, especially if I accidentally fall asleep or I am offtab, if I disconnect and never come back then I fell asleep..
+
 I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolated a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
 
 I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
