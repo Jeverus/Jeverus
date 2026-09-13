@@ -19,6 +19,9 @@
    </p>
 <a href="https://github.com/choco-town"> @choco-town
  </a>: ponytowns slasher!!
+  </p>
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>:  slasher 
+</p>
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
