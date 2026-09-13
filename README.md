@@ -63,3 +63,12 @@ im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #st
   <img src="https://files.catbox.moe/ub8vwf.png" alt="slasher me" width="600">
 </p>
 
+   </details>
+</div>
+ <p align="center"
+         
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5C2F17&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
