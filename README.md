@@ -1,7 +1,9 @@
 </p>
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> my titles!!!!!! </summary>
-<a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media </a>:　ponytowns severus snape! 
+  Thank you all!!
+  
+<a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media 
 </p>
 <a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  slasher heavykin 
 </p>
