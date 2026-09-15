@@ -1,28 +1,28 @@
 </p>
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#825435}{\text{my titles!!!!!!}}$ </summary>
-  Thank you all!!
+  $\color{#825455}{\text{Thank you all!!}}$
   
 <a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media 
 </p>
-<a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  slasher heavykin 
+<a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  $\color{#d6ab92}{\text{slasher heavykin}}$ 
 </p>
-<a href="https://github.com/kaotown"> @kaotown </a>: slasher's biggest fan! 
+<a href="https://github.com/kaotown"> @kaotown </a>: $\color{#825435}{\text{slasher's biggest fan!}}$
 </p>
-<a href="https://github.com/Ponytowns-rewards"> @Ponytowns-rewards </a>: ponytowns slasher!
+<a href="https://github.com/Ponytowns-rewards"> @Ponytowns-rewards </a>: $\color{#ffbead}{\text{ponytowns slasher!}}$
   </p>
-<a href="https://github.com/pt-icon"> @pt-icon </a>: ponytowns iconic slasher
+<a href="https://github.com/pt-icon"> @pt-icon </a>: $\color{#d6ab92}{\text{ponytowns iconic slasher}}$
     </p>
 <a href="https://github.com/PT-FANtastic-Hall"> @PT-FANtastic-Hall
- </a>: ponytowns slasher
+ </a>: $\color{#825435}{\text{pts slasher}}$
 </p>
   <a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations
- </a>: ponytowns slasher
+ </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
 <a href="https://github.com/choco-town"> @choco-town
- </a>: ponytowns slasher!!
+ </a>: $\color{#d6ab92}{\text{pts slasher}}$
   </p>
-<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: pts slasher and #1 Slasher1337 fan/shipper!!
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#825435}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
 </p>
 </div>
 
@@ -45,7 +45,7 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
 
 </p>
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> about me! </summary>   i love to c+h with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
+  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>   i love to c+h with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
   don't cover me unless we're oomfs or you're cuddling with me.
 
