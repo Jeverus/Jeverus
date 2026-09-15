@@ -1,6 +1,6 @@
 </p>
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> my titles!!!!!! </summary>
+  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#825435}{\text{my titles!!!!!!}}$ </summary>
   Thank you all!!
   
 <a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media 
