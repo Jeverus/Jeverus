@@ -28,7 +28,7 @@
 
 ![](https://files.catbox.moe/tu9444.jpg)
 <p align="center">
-  <img src="https://files.catbox.moe/wyw0ef.png" alt="slasher me" width="600">
+  <img src="https://files.catbox.moe/wyw0ef.png" alt="slasher me" width="450">
 </p>
 
 ![](https://files.catbox.moe/tu9444.jpg)
