@@ -39,7 +39,7 @@
 
 
 <p align="center">
-I am the real slasher V_V
+$\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
 </p> 
 
 
