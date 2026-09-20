@@ -24,6 +24,9 @@
   </p>
 <a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#825435}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
 </p>
+  <a href="https://github.com/paw-town"> @paw-town
+ </a>: $\color{#ffbead}{\text{pts slasher}}$
+   </p>
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
