@@ -21,15 +21,17 @@
    </p>
 <a href="https://github.com/choco-town"> @choco-town
  </a>: $\color{#d6ab92}{\text{pts slasher}}$
-  </p>
-<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#825435}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
+</p>
+   <a href="https://github.com/music-town"> @music-town </a>: $\color{#825435}{\text{ pts Survival For The Fittest}}$
+$\color{#825435}{\text{ (Slasher VS Guest 1337 LMS) }}$ 
+   </p>
 </p>
   <a href="https://github.com/paw-town"> @paw-town
  </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
-   <a href="https://github.com/music-town"> @music-town </a>: $\color{#d6ab92}{\text{ pts Survival For The Fittest}}$
-$\color{#d6ab92}{\text{ (Slasher VS Guest 1337 LMS) }}$ 
-   </p>
+     </p>
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#d6ab92}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
+</p>
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
