@@ -27,6 +27,8 @@
   <a href="https://github.com/paw-town"> @paw-town
  </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
+   <a href="https://github.com/music-town"> @music-town </a>:  $\color{#d6ab92}{\text{ Pony Town's Survival For The Fittest (Slasher VS Guest 1337 LM) }}$ 
+   </p>
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
