@@ -27,7 +27,8 @@
   <a href="https://github.com/paw-town"> @paw-town
  </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
-   <a href="https://github.com/music-town"> @music-town </a>:  $\color{#d6ab92}{\text{ Pony Town's Survival For The Fittest (Slasher VS Guest 1337 LM) }}$ 
+   <a href="https://github.com/music-town"> @music-town </a>: $\color{#d6ab92}{\text{ pts Survival For The Fittest}}$
+$\color{#d6ab92}{\text{ (Slasher VS Guest 1337 LMS) }}$ 
    </p>
 </div>
 
