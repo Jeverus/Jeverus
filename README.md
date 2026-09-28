@@ -32,7 +32,7 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
 <a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#d6ab92}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
 </p>
      </p>
-<a href="https://github.com/casinotown"> @casinotown </a>: $\color{#825435}{\text{pts slasher and n1 Slasher1337 fan/shipper!!}}$
+<a href="https://github.com/casinotown"> @casinotown </a>: $\color{#825435}{\text{pts slasher!!}}$
 </p>
 </div>
 
