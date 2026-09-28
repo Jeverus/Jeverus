@@ -78,8 +78,8 @@ im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #st
 </div>
 <p align="center">
   <img src="https://files.catbox.moe/t5tji1.png" alt="slasher me" width="600">
-  ART DRAWN FOR ME !!!
 </p>
+art drawn for me <3
 
    </details>
 </div>
