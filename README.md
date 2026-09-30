@@ -34,6 +34,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
      </p>
 <a href="https://github.com/casinotown"> @casinotown </a>: $\color{#825435}{\text{pts slasher!!}}$
 </p>
+</p>
+  <a href="https://github.com/daggerstruckmage"> @daggerstruckmage 
+ </a>: $\color{#825435}{\text{pts slasher}}$
+   </p>
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
