@@ -36,7 +36,7 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
 </p>
 </p>
   <a href="https://github.com/daggerstruckmage"> @daggerstruckmage 
- </a>: $\color{#825435}{\text{pts slasher}}$
+ </a>: $\color{#d6ab92}{\text{pts slasher}}$
    </p>
 </div>
 
