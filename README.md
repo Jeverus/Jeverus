@@ -62,7 +62,7 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>  my names Davie OR Slasher. i love to c+h with others and I love when people do it with me! it makes me feel veryy.happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
 _______
-I am Slasher in real life, I ask for doubles to not interact. especially if you claim to be him, unless I interact first with you.
+I am Slasher in real life, I ask for doubles to not interact. especially if you claim to be him, unless I interact first with you or we're oomfs already.
 
   don't cover me unless we're oomfs or you're cuddling with me.
 
