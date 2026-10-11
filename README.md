@@ -84,9 +84,8 @@ im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #st
 [ponytown info](https://rentry.co/forponytownzz) 
 </div>
 <p align="center">
-  <img src="https://files.catbox.moe/t5tji1.png" alt="slasher me" width="600">
+  <img src="https://files.catbox.moe/5u3h1r.jpg" alt="slasher1337" width="600">
 </p>
-art drawn for me <3
 
    </details>
 </div>
