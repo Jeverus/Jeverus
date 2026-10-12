@@ -56,6 +56,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
 $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
 </p> 
 
+<p align="center">
+  <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_34962114934317.gif" alt=" me" width="140">
+    <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_34968322315304.gif" alt="me" width="140">
+</p>
 
 </p>
 <div align="center"><details close="">
