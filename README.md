@@ -42,7 +42,8 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
 
 ![](https://files.catbox.moe/tu9444.jpg)
 <p align="center">
-  <img src="https://files.catbox.moe/wyw0ef.png" alt="slasher me" width="450">
+  <img src="https://files.catbox.moe/e63c9c.png" alt="slasher me" width="450">
+  art by 007n71fan on tt
 </p>
 
 ![](https://files.catbox.moe/tu9444.jpg)
