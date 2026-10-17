@@ -1,8 +1,15 @@
 </p>
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#825435}{\text{my titles!!!!!!}}$ </summary>
+   
+  <table>
+    <tr>
+      <td>
+        <br>
+         <div align="center">
+
   $\color{#825455}{\text{Thank you all!!}}$
-  
+
 <a href="https://github.com/pt-hall-of-media"> @pt-hall-of-media 
 </p>
 <a href="https://github.com/pt-heavyfictkin"> @pt-heavyfictkin </a>:  $\color{#d6ab92}{\text{slasher heavykin}}$ 
@@ -38,6 +45,16 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
   <a href="https://github.com/daggerstruckmage"> @daggerstruckmage 
  </a>: $\color{#ffbead}{\text{pts slasher and n1 fan of slasher}}$
    </p>
+
+
+  <br>
+
+</div>
+        </div>
+      </td>
+    </tr>
+  </table>
+ 
 </div>
 
 ![](https://files.catbox.moe/tu9444.jpg)
