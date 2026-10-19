@@ -69,7 +69,7 @@ $\color{#d6ab92}{\text{art by 007n71fan on tt}}$
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=BACONS&abbreviated=true)
+  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=BACONS&abbreviated=false)
 
 
 <p align="center">
