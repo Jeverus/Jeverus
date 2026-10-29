@@ -6,7 +6,7 @@
     <tr>
       <td>
         <br>
-         <div align="center">
+  <div align="center">
 
   $\color{#825455}{\text{Thank you all!!}}$
 
