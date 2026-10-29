@@ -46,7 +46,7 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
  </a>: $\color{#ffbead}{\text{pts slasher and n1 fan of slasher}}$
    </p>
    </p>
-<a href="https://github.com/pt-everypony"> @pt-everypony </a>: $\color{#d6ab92}{\text{pts slasher}}$ $\color{#d6ab92}{\text{n1 Slasher1337 shipper,Heavykins slasher}}$
+<a href="https://github.com/pt-everypony"> @pt-everypony </a>: $\color{#d6ab92}{\text{pts slasher,}}$ $\color{#d6ab92}{\text{n1 Slasher1337 shipper and Heavykins slasher}}$
 </p>
 
   </table>
