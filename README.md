@@ -48,6 +48,9 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
    </p>
 <a href="https://github.com/pt-everypony"> @pt-everypony </a>: $\color{#d6ab92}{\text{pts slasher,}}$ $\color{#d6ab92}{\text{n1 Slasher1337 shipper, Heavykins slasher}}$
 </p>
+     </p>
+<a href="https://github.com/piddlesjet"> @piddlesjet </a>: $\color{#825435}{\text{ponytowns slasher!!}}$
+</p>
 
   </table>
  
