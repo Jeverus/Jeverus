@@ -53,9 +53,8 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
 </p>
 </p>
   <a href="https://github.com/THE-TEMPIST"> @THE-TEMPIST 
- </a>: $\color{#ffbead}{\text{pts slasher and n1 fan of slasher}}$
+ </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
-
 
   </table>
  
