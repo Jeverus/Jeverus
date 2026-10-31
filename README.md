@@ -51,6 +51,11 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
      </p>
 <a href="https://github.com/piddlesjet"> @piddlesjet </a>: $\color{#825435}{\text{ponytowns slasher!!}}$
 </p>
+</p>
+  <a href="https://github.com/THE-TEMPIST"> @THE-TEMPIST 
+ </a>: $\color{#ffbead}{\text{pts slasher and n1 fan of slasher}}$
+   </p>
+
 
   </table>
  
