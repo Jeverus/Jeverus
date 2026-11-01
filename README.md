@@ -55,6 +55,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
   <a href="https://github.com/THE-TEMPIST"> @THE-TEMPIST 
  </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
+   </p>
+  <a href="https://github.com/bug-town"> @bug-town 
+ </a>: $\color{#ffbead}{\text{pts slasher}}$
+   </p>
 
   </table>
  
