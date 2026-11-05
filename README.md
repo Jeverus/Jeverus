@@ -57,7 +57,7 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
    </p>
    </p>
   <a href="https://github.com/bug-town"> @bug-town 
- </a>: $\color{#ffbead}{\text{pts slasher and cute and kind people }}$
+ </a>: $\color{#d6ab92}{\text{pts slasher and cute and kind people }}$
    </p>
 
   </table>
