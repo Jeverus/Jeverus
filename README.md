@@ -34,7 +34,7 @@
    </p>
    </p>
    <a href="https://github.com/music-town"> @music-town </a>: $\color{#ffbead}{\text{ pts Survival For The Fittest}}$
-$\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$ and $\color{#ffbead}{\text{ (FOR OLD TIMES SAKE)  }}$ $\color{#ffbead}{\text{ Crazyblox vs Guide LMS }}$
+$\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$ and $\color{#ffbead}{\text{FOR OLD TIMES SAKE}}$ $\color{#ffbead}{\text{(Crazyblox vs Guide LMS)}}$
      </p>
 <a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a>: $\color{#d6ab92}{\text{pts slasher and n1 Slasher1337 shipper!!}}$
 </p>
