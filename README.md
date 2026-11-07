@@ -102,6 +102,8 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
 _______
 I am Slasher in real life, I ask for doubles to interact with caution. UNLESS I have interacted with you before(if i did then ur free to int with me anyime) or if i interact with you first or we're oomfs/i follow u!!!!!
 
+I am offtab like 99% of the time so i may not see interactions alot, so whisper to me pls!
+
 don't cover me unless we're oomfs or you're cuddling with me.
 
 I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolated a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
