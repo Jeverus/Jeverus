@@ -62,6 +62,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$
        </p>
 <a href="https://github.com/Knox-Event"> @Knox-Event </a>: $\color{#825435}{\text{ponytowns slasher!!}}$
 </p>
+</p>
+  <a href="https://github.com/Ponyhonors"> @Ponyhonors 
+ </a>: $\color{#ffbead}{\text{pts slasher}}$
+   </p>
 
   </table>
  
