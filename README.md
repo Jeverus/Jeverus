@@ -73,10 +73,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$ $\color{#ffbead}{\text{a
 
 ![](https://files.catbox.moe/tu9444.jpg)
 <p align="center">
-  <img src="https://file.garden/aiRQbQoBARDpXD-M/Untitled1455_20261027220941__fliter--warm-x-rays__channel--all__mode--color.png" alt="slasher me" width="450">
+  <img src="https://file.garden/aiRQbQoBARDpXD-M/Untitled1472_20261108214108__fliter--dark-green-sepia__channel--all__mode--color-dodge__fliter--sepia__channel--all__mode--soft-light.png" alt="slasher me" width="450">
 </p>
 <p align="center">
-$\color{#d6ab92}{\text{art by therealbluejayrants on tt}}$
+$\color{#d6ab92}{\text{art by chimichangasyay on tt}}$
 </p> 
 
 ![](https://files.catbox.moe/tu9444.jpg)
