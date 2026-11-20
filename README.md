@@ -66,7 +66,10 @@ $\color{#ffbead}{\text{ (Slasher VS Guest 1337 LMS) }}$ $\color{#ffbead}{\text{a
   <a href="https://github.com/Ponyhonors"> @Ponyhonors 
  </a>: $\color{#ffbead}{\text{pts slasher}}$
    </p>
-
+    </p>
+  <a href="https://github.com/pony-town-nominations"> @pony-town-nominations
+ </a>: $\color{#d6ab92}{\text{pts slasher}}$
+   </p>
   </table>
  
 </div>
