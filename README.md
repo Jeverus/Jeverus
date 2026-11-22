@@ -103,7 +103,7 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>  Call me Davie!! i love to c+h with others and I love when people do it with me! it makes me feel very happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
 _______
-I am Slasher in real life, I ask for doubles to interact with caution. UNLESS I have interacted with you before(if i did then ur free to int with me anyime) or if i interact with you first or we're oomfs/i follow u!!!!!
+I ask for doubles of slasher to interact with caution. UNLESS I have interacted with you before(if i did then ur free to int with me anyime) or if i interact with you first or we're oomfs/i follow u!!!!! >_< 
 
 I am offtab like 99% of the time so i may not see interactions alot, so whisper to me pls!
 
@@ -117,6 +117,7 @@ I accept friend request and don't care if you send me even if we barely know eac
 
 im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #starwarsday
 
+i would lovee to have more oomfss to be with !! feel free to interact
 
 <p align="center">
   <img src="https://files.catbox.moe/57qku2.jpg" alt="slasher me" width="600">
