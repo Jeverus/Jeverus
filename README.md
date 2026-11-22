@@ -86,7 +86,7 @@ $\color{#d6ab92}{\text{art by chimichangasyay on tt}}$
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=BACONS&abbreviated=false)
+  ![](https://komarev.com/ghpvc/?username=jeverus&color=604A31&label=The_Bacon_Empire&extraCount=15754&)
 
 
 <p align="center">
@@ -100,30 +100,27 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
 
 </p>
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>  Call me Davie!! i love to c+h with others and I love when people do it with me! it makes me feel very happy... whisper to interact cuz I may not check public a lot unless we have each other added cuz I'll just check the friends chat tab thing.., im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
+  <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>  Call me Davie or vivi!! i love to c+h with others and I love when people do it with me, whisper to interact cuz I may not check public a lot, im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
 _______
-I ask for doubles of slasher to interact with caution. UNLESS I have interacted with you before(if i did then ur free to int with me anyime) or if i interact with you first or we're oomfs/i follow u!!!!! >_< 
+
+i would lovee to have more oomfss to be with !! feel free to interact
 
 I am offtab like 99% of the time so i may not see interactions alot, so whisper to me pls!
 
-don't cover me unless we're oomfs or you're cuddling with me.
+I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, i kind of lost my ability to speak with people properly and interact with others so yeah..
 
-I promise I'm a really really cool person, just ignore my awkwardness and me randomly going silent because i dont know how to talk to people, #isolationfinalboss , i isolated a lot and still do and it made me lose my ability to speak with people properly and interact with others so yeah 
-
-I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things, but I dont mind speaking about stuff with others.
+I'm not a great convo starter or talking in general, I'm mostly quiet 99% of the time and like to do my own things in slience, but I dont mind speaking about stuff with others.
 
 I accept friend request and don't care if you send me even if we barely know each other!!!
 
 im sixteenn my birthday is may4th !! so cool lala may the fourth be with you #starwarsday
 
-i would lovee to have more oomfss to be with !! feel free to interact
-
 <p align="center">
-  <img src="https://files.catbox.moe/57qku2.jpg" alt="slasher me" width="600">
+  <img src="https://files.catbox.moe/57qku2.jpg" alt="slasher me" width="300">
 </p>
 
-[ponytown info](https://rentry.co/forponytownzz) 
+
 </div>
 <p align="center">
   <img src="https://files.catbox.moe/5u3h1r.jpg" alt="slasher1337" width="300">
