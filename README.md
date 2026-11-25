@@ -105,6 +105,7 @@ $\color{#d6ab92}{\text{I am the real slasher(≡0∇0≡)}}$
   <summary> <g-emoji class="g-emoji" alias="spades">🔪</g-emoji> $\color{#818181}{\text{about me!}}$ </summary>  Call me Davie or vivi!! i love to c+h with others and I love when people do it with me, whisper to interact cuz I may not check public a lot, im pretty lonely most of the time so I really appreciate when people come up to me! and if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles❤️
 
 _______
+hi my fav ships are floodcoins (guide flood escape x chance forsaken), toughluck and slasher1337!!!
 
 i would lovee to have more oomfss to be with !! feel free to interact
 
